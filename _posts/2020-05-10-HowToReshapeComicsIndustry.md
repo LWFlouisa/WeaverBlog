@@ -13,3 +13,5 @@ My goal is to discourage the kind of speculator market that existed in the 90s, 
 I really really really like the Tabletop RPG model, though I'm not considering doing Games at this time. But characters would be creator-owned. Sort of like the concept of a shared world anthology. I would work with other people that have suggestions whether to do weekly, monthly, and annually. Actually a really good comparison to me would be RPG Maker Magazine. And no, not like Wattpad / Tapas and other places. I genuinely despise User-Generated content. As it removes the flaws of assigning writers and artists in house ( licensed content ), and go entirely in the opposite direction.
 
 Print versions would be a means of advertising, and done in newsprint in black and white format. And sold on news stands, I neglected to mention. Also editors should also be writers, or have some knowledge of the creative process in magazines like Apex, Asimovs, Fantasy And Science Fiction.
+
+The magazine would also need to be an onion / ipfs service to circumvent CCC and Cancel Culture.

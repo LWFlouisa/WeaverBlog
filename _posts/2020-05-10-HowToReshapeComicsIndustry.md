@@ -1,6 +1,6 @@
 ---
 title: How To Reshape The Comics Industry
-published: false
+published: true
 ---
 <i>The concept for Hafestran Rose</i>
 

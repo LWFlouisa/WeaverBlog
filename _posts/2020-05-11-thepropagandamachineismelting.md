@@ -1,6 +1,6 @@
 ---
 title: The Propaganda Machine Is Melting
-published: false
+published: true
 ---
 It is well known in the UFO community that propaganda has been used in the past to make people submissive to the oppressions in the American regime. Additionally, I consider Marvel and DC to be one limb in a larger cogwork of propaganda outlets in bed with the matrix. But with the publishing of the Harper’s Letter, along with the widespread cancelling of prominent UFO creators, along with the release of UFO information by Luis Elizondo, what seems to be becoming increasingly apparent is how the old propaganda machine is malfunctioning, and that people across the politics spectrum of noticing this in mass.
 

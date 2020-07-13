@@ -2,6 +2,8 @@
 title: Why Youtube Events Are Toxic For Your Brand
 published: true
 ---
+<iframe width="560" height="315" sandbox="allow-same-origin allow-scripts allow-popups" src="https://video.ploud.jp/videos/embed/bc44b4be-e77a-4d08-80ad-a30b36a2fd89" frameborder="0" allowfullscreen></iframe>
+
 One of the issues I ran across on Twitter specifically, some of the publishers on there have an extremely narrow idea of what marketing is. Social media is not the same thing as television advertisement; there isn’t a limited number of things you can talk about to maintain your brand. Throw away everything you know about Legacy Branding, get that out the window.
 
 In social media, you talk about everything besides your work and other people comics and merchandize. It is literally disastrous to talk about the things that you are trying to sell. Considering that I have an interest in other things besides comics, specifically creative writing and artificial intelligence, if I can’t talk about those things, then what else do I have to talk about?

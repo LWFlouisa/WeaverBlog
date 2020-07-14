@@ -2,7 +2,8 @@
 title: Suspicious Of Cancel Culture Is Not Partisan
 published: true
 ---
-<br /><iframe width="560" height="315" sandbox="allow-same-origin allow-scripts allow-popups" src="https://video.ploud.jp/videos/embed/c53ceaa0-2c28-4a07-9c4a-19b90d4e3e65" frameborder="0" allowfullscreen></iframe><br />
+<iframe width="560" height="315" sandbox="allow-same-origin allow-scripts allow-popups" src="https://video.ploud.jp/videos/embed/c53ceaa0-2c28-4a07-9c4a-19b90d4e3e65" frameborder="0" allowfullscreen></iframe>
+
 In the artificial intelligence world, we have a specific phrase that highlights the nature that are robot overlords will have over power, referenced frequently by Ben Goertzal: “The AI doesn’t hate you, they don’t love you. But they will use your atoms for something else”. Interestingly, this also mirrors the behaviour of which corporations behave.
 
 I wrap this around with cancel culture; corporations are not left-wing, and they are not right-wing; but they will misappropriate your social cause in order to make them the most money. This is why we should be inherently suspicious of any movement that begins at the top rungs of society, because they will use a left wing or right wing idealogy. They will even use radical centrist idealogies. This is because corporations do not have a set moral code.

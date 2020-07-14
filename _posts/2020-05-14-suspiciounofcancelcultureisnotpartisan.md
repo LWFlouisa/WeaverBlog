@@ -2,7 +2,7 @@
 title: Suspicious Of Cancel Culture Is Not Partisan
 published: true
 ---
-<iframe width="560" height="315" sandbox="allow-same-origin allow-scripts allow-popups" src="https://video.ploud.jp/videos/embed/c53ceaa0-2c28-4a07-9c4a-19b90d4e3e65" frameborder="0" allowfullscreen></iframe>
+![video](https://video.ploud.jp/videos/embed/c53ceaa0-2c28-4a07-9c4a-19b90d4e3e65)
 
 In the artificial intelligence world, we have a specific phrase that highlights the nature that are robot overlords will have over power, referenced frequently by Ben Goertzal: “The AI doesn’t hate you, they don’t love you. But they will use your atoms for something else”. Interestingly, this also mirrors the behaviour of which corporations behave.
 

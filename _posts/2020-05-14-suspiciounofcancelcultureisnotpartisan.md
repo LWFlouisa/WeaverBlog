@@ -1,5 +1,5 @@
 ---
-title: Suspicious Of Cancel Culture Is Not Partisan
+title: Why We Should Be Inherently Suspicious Of Cancel Culture
 published: true
 ---
 ![video](https://video.ploud.jp/videos/embed/c53ceaa0-2c28-4a07-9c4a-19b90d4e3e65)

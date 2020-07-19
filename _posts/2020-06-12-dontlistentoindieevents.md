@@ -2,7 +2,7 @@
 title: Why Youtube Events Are Toxic For Your Brand
 published: true
 ---
-![video](https://video.ploud.jp/videos/embed/bc44b4be-e77a-4d08-80ad-a30b36a2fd89)
+[Why Youtube Events Are Toxic For Your Brand](https://video.ploud.jp/videos/embed/bc44b4be-e77a-4d08-80ad-a30b36a2fd89)
  
 One of the issues I ran across on Twitter specifically, some of the publishers on there have an extremely narrow idea of what marketing is. Social media is not the same thing as television advertisement; there isn’t a limited number of things you can talk about to maintain your brand. Throw away everything you know about Legacy Branding, get that out the window.
 

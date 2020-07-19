@@ -8,6 +8,4 @@ Meanwhile, I have no support group to go to IRL, because my ex president others 
 
 I'm saying this as someone who is leftist, please leave your Class Reductionism and Consciousness ideology at the door. That's not what a support group for trans issues is for. It's for helping people find the medical resources people going the traditional route need.
 
-But please, enlighten me about what "priviledge" is. Tell me, a minority, not to want trans faces on grocery store products.
-
-Why do you think most actual trans women and men drop out of politics? It's because of shit like this.
+But please, enlighten me about what "priviledge" is. Tell me, a minority, not to want trans faces on grocery store products. Why do you think most actual trans women and men drop out of politics? It's because of shit like this.

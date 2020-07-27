@@ -4,7 +4,7 @@ published: true
 ---
 I have a specific poetry rhythm in mind when I write pages of comic script, even though traditionally comic script isn’t usually thought of as a form of poetry. My primary influences are Latin Music, Lusophone, Francophone, and Japanese music. I have even invented a specific musical scale for my current poetry:
 
-[ insert musical scale image ]
+![scale](https://github.com/LWFlouisa/WeaverBlog/blob/master/images/yodorianmode.png?raw=true)
 
 This is reflected in the rhythm of the captions themselves, in which I follow my own personal syllabic rhythm when I write them: 8-6-6-8-4. The rhyme scheme is usually ABBCD, and sometimes ABBCB. This follows the rhythm of Hafestran music, which is a mixture of French and Japanese traditional music, with some modern dance overtones.
 

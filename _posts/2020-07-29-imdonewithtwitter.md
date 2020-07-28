@@ -10,4 +10,4 @@ I feel like the state of the comics industry is symptomatic of a larger problem 
 
 I’m going to start blocking people that keeps trying to fucking force to have a political stand about issue. I do not fucking owe you any public statement what so ever about my views. I don’t even know why Youtubers feel like they have to. They are playing in this game activists on both sides on playing.
 
-Keep me out of the discussion with your childish squabbling. I’m not fucking interested. I want my life to some fucking normalcy for a change.
+Keep me out of the discussion with your childish squabbling. I’m not fucking interested. I want my life to some fucking normalcy for a change. What Twitter and the larger activist community has done, is make me wonder why I even bothered to try to overcome my own issues that I was experiencing after I was abused by my ex room mate.

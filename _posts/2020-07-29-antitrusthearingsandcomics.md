@@ -2,7 +2,7 @@
 title: Anti-Trust Hearings And Comics
 published: true
 ---
-![image](https://techcrunch.com/2020/07/27/tech-hearing-apple-google-amazon-facebook-antitrust-house-judiciary/)
+[Anti-Trust Congress Hearings](https://techcrunch.com/2020/07/27/tech-hearing-apple-google-amazon-facebook-antitrust-house-judiciary/)
 
 I feel like the current events with the Top 5 CEOs, and what is going on in the comics industry should not be taken in isolation of each other. DC and Marvel are every bit as much of a Trust as Apple, Amazon, Facebook, and Google are. It is also note able that they have not asked that they haven’t gone after Jack Dorsey.
 

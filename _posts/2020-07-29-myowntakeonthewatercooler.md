@@ -1,0 +1,19 @@
+---
+title: My Own Take On The Water Cooler
+published: true
+---
+I have my own experience with Absolute Writer’s Water Cooler, that can be added with the growing list of complaints about the writing forum. I have sense moved on with my life, and choose to focus my time on not using writing forums of any kind. I barely consider social media as a whole really useful these days. Other websites have provided good information on why you shouldn’t trust Absolute Write.
+
+The more I distance myself from Absolute Write, the more cult like the website seemed. I knew it took a very long time for me to finish writing Uploaded Fairy, but I had no idea my self-esteem was largely crushed do to the bullying moderators there. However this is largely consistent with my experience with forums more generally. There was also the issue that I was also stuck in a UFO cult at the time.
+
+I used to use forums geared to the RPG Maker games. This was quite a few years before I decided to pursue comics. Some of these even had reputation systems, which are fairly notorious for being gamed. It’s similar to why I don’t pay attention to review scores on book review websites anymore. But despite what they might tell you about constructive criticism, the reality is that there is no meaningful distinction between constructive and nonconstructive criticism. Usually not taking any criticism is construed as being a sign of weakness.
+
+But it went even further with Absolute Writers Water Cooler. They would wholesale engage in defamation of my own character, rather than actually address the issues that were in my writing. It was even more oppressive than my experience over at QM Mag. Like others, I had a hard time getting rid of the cyber bullies that came from that writing forum. Part of that was compounded by my living with my abusive ex room mate at the time, so I went for an entire year without the Internet. Though I managed to write nine novellas in that time. Even other toxic forums, like the Kindle forums, I made the mistake of assuming this would be a better experience. So eventually I dropped forums for social media. I will write another blog my experience with the YA community during the Dystopian Fiction craze.
+
+I only finally managed to actually block one of the users there, after largely avoiding that Twitter account that I’m now re-purposing as a personal account, with the public one more of a professional author account. Note however that I only export my Mastodon posts to Twitter, and seldomly read anything on Twitter. But these people would absolute crush my self-esteem to the point that I had writer’s block that was almost impossible to overcome. This along with being encouraged to have as many hands in the pot as possible when it comes to critiquing my story.
+
+The unfortunate thing is I thought WP was actually a solution. There are a whole host of websites that go into the similar issues in Writing Forums, Book Review Sites, and Serial Fiction websites. They have a very similar culture of a distorted sense of what actual valid criticism is, with very little regulation of how comments are moderated. It’s one reason I choose not to implement a comment feature. Still weighing whether it would actually be worth going into discussing the other websites novel related.
+
+But I would strongly encourage people to avoid writing forums ( including comic script writing forums ) as much as humanely possible. Because your self-esteem might not recover for a decade, and every attempt to write a chapter is connected with that traumatic experience. Comic publishers that talk about how creators should take any criticism given to them, need to be aware that some of the people that say that do so with the baggage that came with this culture of blaming the author.
+
+I have unique issues that compounded it, but that is for another point, how I briefly joined the radical left as a coping mechanism for escaping a UFO cult.

@@ -1,0 +1,13 @@
+---
+title: As I Suspected Of Goodreads Bullies
+published: true
+---
+As it seems to be turning out, there is more to the goodreads bully situation than meets the eye. I was reading a locally hosted archive of things Caroll Bryant has written about the situation. I always keep a local version in case the website dissappears. Apparently the Goodreads bullies are payed to do the kind of bullying they do. Which makes sense, as it's not really a movement that could spring forth organically. I've also had similar suspicions about both mainstream comics people that are especially unprofessional, as well as Comicsgate types.
+
+The reality is, no matter how badly you behave on Twitter, and no matter how famous you are, there usually is not going to be a large scale movement of people that mass spam one star reviews of your work, without having monied interests behind the hate campaign. But more interestingly, apparently Focault In Our Spleen is also involved in our goodreads bully fiasco. It is noteable to me how this particular hate group ( the goodreads bullies ) has not been banned on Goodreads until extremely recently. Amazon took their sweet time doing so. Although that seems to be much less of a problem right now. But this is also why I wonder whether Comicsgate itself is a movement that sprang forth organically, or if there is some monied interests at play.
+
+I haven't really looked at Goodreads in a while, but I would be curious to know if certain members of Comicsgate ( not the entire movement ) is actually spamming one star reviews. It's the same mindset of people that put in negative comments on crowd-sourced writing websites in order to stir the pot. The difference here is that DC and Marvel comics people are mainstream enough, that they could probably actually get Amazon to take down the reviews that are harassing them.
+
+What is especially egregious about the goodreads bully gang, was how they mostly went after non famous authors in order to destroy their reputation. Although in a way that is also how you know they're bullies, that generally tend to go after prey they percieve to be weaker and less able to defend themselves.
+
+Other blogs have already noted the weird relationship between Absolute Water Cooler and GR, so I wont go into that here. I have to be careful how I reference Focault In Our Spleen, because unless for some reason the cancel culture mafia eventually comes after him ( cancel culture has a way of turning against those that start the movements ), he will probably continue have a wide amount of public support, despite whatever good deeds he seems to perform on his video streaming channel.

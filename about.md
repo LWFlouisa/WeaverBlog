@@ -3,7 +3,7 @@ layout: page
 title: About
 ---
 ## Who I Am
-![image](/home/sarah/Pictures/Webcam/2020-07-28-023303.jpg)
+![image](https://lwflouisa.github.io/WeaverBlog/images/image.jpg)
 
 I am a poetry, short story, novellette, and novella writer. I also recently began to dabble in webcomics.
 

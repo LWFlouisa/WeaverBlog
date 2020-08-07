@@ -2,7 +2,7 @@
 title: Whisper Networks, And Preludes Through AWWC And Other Forums
 published: true
 ---
-Customer Service is definitely an important thing, but there are some communities online that take this in a way to literal direction. The other extreme is creators that somehow think it’s OK to abuse people in newsletters, by lecturing readers of that newsletter about how much they have hard them by emailing them feedback, like not doxxing a readers home address. In most cases, when communities talk about authors harming readers, it is usually this hyperbolic situation they reference. The reality is most authors are better at customer service than we give them credit for. There is also way more to it:
+Customer Service is definitely an important thing, but there are some communities online that take this in a way to literal direction. The other extreme is creators that somehow think it’s OK to abuse people in newsletters, by lecturing readers of that newsletter about how much they have hurt them by emailing them feedback, like not doxxing a readers home address. In most cases, when communities talk about authors harming readers, it is usually this hyperbolic situation they reference. The reality is most authors are better at customer service than we give them credit for. There is also way more to it:
 
 Apparently negative reviews are not allowed by members of CG to other members. How much of this is actually true, or just gossip by members of mainstream comics, who is to say? But the point is there isn’t even wide spread agreement on where an publisher begins and a private individual author ends. I’ve met people that genuinely say authors are not private individuals once they put pen to paper. To make it worse, the classical Customer Service versus Author Benefits people aren’t 100% clear cut as they may seem.
 
@@ -23,3 +23,5 @@ At this time, you would think that Literary Agents in YA would be more professio
 Cut to now, where Bleeding Fool wrote an article about the whisper networks, and how they have work to prevent people from getting into the larger comics industry. Do you not think this is where “Authors Should Never Read Reviews” inevitably leads? When you take those words to literally? And how about this allegation that CG people can’t give each other bad reviews? How would you know that, if you were not allowed to read reviews given to you.
 
 We have a chance to discontinue the hypocracy that had existed in creative communities before, but what seems to be happening, is I can’t really tell about the radical left part of creative communities and the radical right anymore. Both of them are extremely puritanic. It’s almost like the difference is between Tankies and Nazis.
+
+In some ways I feel like the UFO community is all I have left, and even that has some serious bad actors.

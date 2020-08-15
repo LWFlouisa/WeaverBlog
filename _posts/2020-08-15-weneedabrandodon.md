@@ -1,0 +1,17 @@
+---
+title: We Need A Brandodon
+published: true
+---
+As the saying goes, sometimes you wish you knew in the present what you didn’t when first starting out in an industry. I came to comics largely with the idea that it would be some kind of escape from the general drama of fan culture that became increasingly apparently with the cults of personality of famous authors lucky to have a verified sticker. Though at least in that field, there wasn’t anybody ( whose opinion was worth anything ) that would tell you not to write about pop culture. But the comic book community has its own sets of issues with superstar artists, that think they are comic book’s Johnny Depp.
+
+I had originally wanted to be a Cyberpunk author, and took a long time to finally completely edit the novella that I wanted to eventually become a graphic novel. It took much longer than it should have been, largely do to overcoming my PTSD from certain abusive writing forums. I still plan on getting into the comic book world, but  I feel like I don’t have a lot of opportunity to set my own terms of engagement. You have some people with undo advantages, getting into the comic book industry who have absolutely no talent. That is one area I agree with comics gate. I disagree that diversity is really the issue however.
+
+In both the book writing world and the comic book world, it seems like the deck is so thoroughly stacked against you by people who are automatically given verified stickers on Twitter, that it makes it impossible for anyone else that wants to dip into the industry to properly brand them self. But these same people also make statements like “Leftists by and large tend to be shit at branding.” It is interesting to me, because this person is a politician, and you would think they would be trying to bring people together.
+
+In this environment, I feel like it’s honestly to much to expect beginning comic book writers to establish a brand for them self in this environment. And yet all to often it seems like people don’t really try to find greener pastures like Mastodon. And even on Mastodon in some instances trying to form your own brand is actually against their TOS. Which means your only real option is to fork your own Mastodon, and try to keep it secret the changes you make. And then even when you get that online, so people try to instance block you. In a sense, “Protectionism” for those that are in a kind of attention economy.
+
+But you have a lot of these people try to convince you that you should try to have a social media presence. But then those same folks will not try to convince AI development companies to have a social media presence, or they will pretend like AI is inherently privacy invasive. But if I’m being honest, I would rather be ruled by AI than some of the very human idiots that run social media, whether in a financial economy or attention economy.
+
+This also puts me in a very weird place as a Science Fiction writer, as to some people that make me a Fence sitter, but also not the same kind of authoritarian fence sitters that are on Youtube, who are really just right wingers with better branding to allow them to falsely present themselves as centrists. While actual genuine enlightened centrists languish in obscurity.
+
+We need an environment that makes it easier for self-publish creators to brand themselves, without having to worry about some cultural issues that tend to plague both Mastodon and Twitter.

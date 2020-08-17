@@ -1,0 +1,15 @@
+---
+title: A Larger Unofficial Dynasty Of Power And Influence
+published:true
+---
+I feel like we need to talk more about Tom King’s connection with the CIA. It is in the nature of government organizations to be secretive in the way that they operate. But I almost wonder, particularly in light of the Whisper Network, whether there are more people in the Big Two that work for the CIA than we might like to admit to. And that is partially why related issues to Cancel Culture are not so much a deliberate mechanism, so much as it s culmination of decades of controversies that were covered up. Things that were clearly illegal in nature. Illegal things don’t tend to be covered up, unless the people that do illegal things have some form of legal protection.
+
+This is where the CIA comes into the picture. That would be one hell of a cozy deal, if it turns out the CIA has actually infiltrated The Big Two in comics, and that is why it has taken this long to reveal larger issues of corruption in this industry. The Federal Government has had a history of covering up issues in its own Clockwork. With operations like Cointelpro, and how it subverts activist circles, to me it would only make sense that there would actually be more people that have worked for the CIA than we might like to admit. People that used to work for the CIA never really leave the CIA, they just become off duty.
+
+The CIA itself has legal protection for doing the things they do in the Federal Government, and that is why they’re able to assassinate world leaders. The Big Two would have everything to gain by having cozy connections with government contractors, even if they are not officially a government office. Because then they can create unofficial government propaganda. Whether the propaganda is excessively woke or not is not the issue, I don’t want a comic book company to be producing any kind of propaganda for anyone. Even if that is propaganda that I personally align with on a political level: I am a Leftist after all.
+
+This would explain why it seems like The Big Two behave in a way that it almost seems like they have legal backing. Because it is with legal backing that you can cover up issues related to systemic abuse. I’m not sure if there is anyway to fix that, if the government itself has their financial backing in that industry, even if that may be in an unofficial manner. To me it suggests something that I feared ever sense I was in high school, even before I joined the left.
+
+That there is a superficial structure of power, this is what people call the Military Industrial Complex, the Media Industrial Complex, and others. But there is a larger dynasty that uses these organizations like puppet organizations. Think of this in a left wing and right wing way has blinded me to this reality, it has made me focus for to long on minor political disagreements, when the system of power and influence does not care what your political views are, they would use whatever ideology you happen to hold onto at the time for its own purpose.
+
+I really really miss the UFO Research Community.

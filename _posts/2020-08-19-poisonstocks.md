@@ -1,6 +1,6 @@
 ---
 title: Poison Stocks
-published: false
+published: true
 ---
 For those who don’t know, people usually think of Birkenstocks as being “man repellent”. Maybe it’s just because I’m not a man. But that can’t be further from the truth in my case. In fact the only way to be repellant, is not to dress in such a way as to want to wank to the mother in Terminator. Usually what ends up happening is “man repellant” outfits end up actually being kind of a huge turn on for me, especially those particular shoes. At worst, Poison Ivy look like a really young and hot grand mother.
 

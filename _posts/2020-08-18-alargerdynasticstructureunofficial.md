@@ -1,6 +1,6 @@
 ---
 title: A Larger Unofficial Dynasty Of Power And Influence
-published:true
+published: true
 ---
 I feel like we need to talk more about Tom King’s connection with the CIA. It is in the nature of government organizations to be secretive in the way that they operate. But I almost wonder, particularly in light of the Whisper Network, whether there are more people in the Big Two that work for the CIA than we might like to admit to. And that is partially why related issues to Cancel Culture are not so much a deliberate mechanism, so much as it s culmination of decades of controversies that were covered up. Things that were clearly illegal in nature. Illegal things don’t tend to be covered up, unless the people that do illegal things have some form of legal protection.
 

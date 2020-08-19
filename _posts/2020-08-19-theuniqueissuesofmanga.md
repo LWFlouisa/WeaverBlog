@@ -1,6 +1,6 @@
 ---
 title: The Unique Issues of Manga
-published; true
+published: true
 ---
 Or why I don’t see Manga as an alternative for fixing the American comics industry.
 

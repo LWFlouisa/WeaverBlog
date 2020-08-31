@@ -5,7 +5,7 @@ published: true
 Before I begin this article, let me site a few other sources, corroborating about the generally poor service that has existed on Absolute Writer’s Water Cooler.
 
 Sources:
-https://thelookingglassofcarrollbryant.blogspot.com/2013/09/internet-scams-absolute-write.html
+https://thelookingglassofcarrollbryant.blogspot.com/2013/09/internet-scams-absolute-write.html<br />
 https://forumsreview.blogspot.com/
 
 This should be sufficient, because the second link actually sites several sources in and of itself, and I would risk retreading on old ground. What I can however mention is why I myself cannot recommend Absolute Writer’s Water Cooler. In some ways, I consider it a prologue for the Cancel Culture that would eventually sweep the creative community, including the writing world. Twitter in particular shoulders a lot of the blame for spreading it.

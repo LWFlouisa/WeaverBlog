@@ -14,6 +14,6 @@ You can watch video renderings of my blog here:
 [Visit Webcomic](https://lwflouisa.github.io/uploadedfairyalt/)
 
 ## Follow On Secure Scuttlebutt
-![Link](@H4fKJHFdHtkO3OVgxwfSkzM2nhKB5PAhNxeJ3jJjDLs=.ed25519)
+[Link](@H4fKJHFdHtkO3OVgxwfSkzM2nhKB5PAhNxeJ3jJjDLs=.ed25519)
 
 Right click and copy link.

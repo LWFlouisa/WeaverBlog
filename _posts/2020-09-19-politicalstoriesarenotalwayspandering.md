@@ -17,3 +17,7 @@ What if I told you I also thought @sketchygothandz was a dumb ass, not because s
 So those of us who produce normal political stories, that isn’t propaganda like Hitler Youth movies and Soviet Union propaganda, are left essentially without a voice in the Comics community. This is where #MangaExit comes in.
 
 Lets take back the comics discussing, and promote causes we believe in without giving into the Neo-Liberal and Fascist tap dance.
+
+At the moment talking about real issues are impossible no matter what side you choose. Lets change comics so we can more efficiently talk about genuine outrages like what Kyle Kulinski is referring to:
+
+<iframe id='ivplayer' width='640' height='360' src='https://invidious.snopyta.org/embed/lBa_dbcTZIo' style='border:none;'></iframe>

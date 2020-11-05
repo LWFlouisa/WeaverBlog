@@ -1,0 +1,13 @@
+---
+title: Why Indies Are Best Going Solo
+published: true
+---
+I came into comics with the idea that producing comics was about the art process. I was not expecting comics to be used as a political tool to further a culture warrior cause, whether left-wing or right-wing. I simply wanted to tell a story of “Baguetti Orientalism”. Or an American variation of Nouvelle Manga. The fact that both mainstream comics and comicsgate both would prefer dehumanizing others rather than trying to understand the other point of view, is actually why I don’t actually believe that Comicsgate is really about Consumer Advocacy of any kind.
+
+If it were really about consumer advocacy, then people that want to be independent and producing content about literally whatever they want to produce things about, would not be a problem. And one doesn’t stop being an Independant comics creator simply because they can no longer tolerate the environment of Comicsgate and their related splinter groups. But the answer to this problem is not becoming the very thing in comics Comicsgate was trying to fight against, things like “producing manga is misappropriative”. This entirely missing the point of why things like Comicsgate are disgusting groups to affiliate with.
+
+The point of being an indie creator is not having bosses, or anything of this nature, telling you how to produce your own story. Whether that be for identity politics or the culture war. You have both sides literally neck and neck these days, and I honestly find both sides of this debate beyond the pale. I just want to be free to creative whatever I feel like, regardless of whether that’s a left leaning or right leaning story. And not have some “boss” man telling me how to use my platform, for an audience that I probably know better than they do about who my target audience is.
+
+My target audience is neither identity politics or culture warriors, it also not people that think of art as strictly functional, or even really not even about the comics themselves. This is completely the opposite of the way that I view drawing sequential art, which has always been for the purpose of “Art For Art Sake”, not shoving a culture war message down my throat, which is literally exactly what University Teachers and Comicsgate both do in spades. I never tell you not to produce content that doesn’t align with my values.
+
+I expect the exact same courtesy. I don’t give one shit what your political views are, as long as you’re not telling me not to produce dystopian narrative and other kinds of political stories. The point of being Indie is being my own boss, and this just doesn’t happen in Comicsgate. It’s not about the comics, not has it ever been about comics.

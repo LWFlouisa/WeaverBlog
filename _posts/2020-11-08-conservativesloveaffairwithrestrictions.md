@@ -1,0 +1,17 @@
+---
+title: Conservatives Love Affair With Restrictions
+published: true
+---
+Tonight I had a conversation with dad about the fact that Republican legislatures in Senate would work against measures like Universal Basic Income. To keep this essay from going to look, I will summarize it as apparently the state defines a job as something that you make money at: like an on and off switch, you either make money at it or you don’t. Pure black and white thinking. Certainly in his own youth, it was true that you had to take jobs that were available, regardless of whether they were businesses you started, or ones created by someone else.
+
+Of note was his general belittling of issues like efficient hierarchical structures, and how these lead to inefficient management practices. Or how top down management tends to lead to an unhappy work force, despite him not just coming out and saying it. All this, seemingly, from a conversation about the restrictions that would apply to universal basic income, because I mentioned that having restrictions on Universal Basic Income would make it therapy not universal. ( This ignores the other issues which I don’t agree with, like how you would have to make goods and services cheaper. )
+
+But one common pattern is in a lot of conversations I have with him, there is a tendency for him to speak past what I’m saying, rather than actually attempting to address the problem that I was mentioning. At other times he would completely change the subject, if he can’t address the points I was making. Usually this is in the later stages of the conversation, after his second drink. I notice this happens a lot when you talk with old fashioned liberals when it comes to addressing obvious issues brought to bare by the previous Trump presidency.
+
+Never addressed is why the IRS would specifically define work as something that earns you money absolutely, and not them understanding the difference between a supplementary income and a full living income. A supplementary income, if that’s all you’re earning, you would not ordinarily pay taxes on it. Also not addressed is why basing restrictions on the existence of a job is not always the best measure, specifically for people with disabilities where they are unable to work. Or why top down hierarchies are even necessary.
+
+At points he would just approach but never say how people with disabilities should even “want” to work, or whether it is even reasonable to expect disabled people to be able to work. The funny thing is my dad is not a conservative, if anything he is to the left of Liberal, but not Socialist. In many ways like myself, although I’m more libertarian than he is. And yet he still buys into the idea that the system is able to work as designed.
+
+Sure, to a sizable portion of Breadtube, Universal Basic Income is not revolutionary enough, but do to the conservatives love affair with applying restrictions on anything they can find, it would actually require a radical change in the social order, particular in my neck of the woods, to even accept a UBI, let alone “free stuff” which I almost assume Left tube means ironically at this point. Conservatives would actually love if the majority of us on the left just wanted free stuff.
+
+The scary thing is, the left doesn’t even address these issues anymore, or they do it in a superficial kind of way: they wrap it around identity politics. Even C4SS confuses restrictions with regulations.

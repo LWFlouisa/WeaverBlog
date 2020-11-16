@@ -1,0 +1,13 @@
+---
+title: Youtube Trends Toward Authoritarian
+published: true
+---
+I consider Youtube to trend towards authoritarian, and Peertube to trend torward Libertarian. Note I don't mean authoritarian in a partisan way, but more in persuasive tendencies: deleting comments that differ on idealogical lines, insinuating there is only one right way to solve a problem, blocking people whose views differ from your own, lecturing people if they don't use their product or service to promote the narrative you want.
+
+Most people who use Peertube just want to be left alone to live their lives for the most part. It's not really about gathering followers and having them echo your sentiments. This seems to be an issue that crosses several idealogical and social divides, and more a general nature of platforms like Youtube, Vimeo, and places like this. For whatever reason, on Youtube, whether do to authoritarian tendencies of the people that use the platform, or by nature of relying on an algorithm to motivate people motivated by sales, it drives a certain demographic to to want to persuade others to give into the dictates of the market.
+
+I would have thought that by moving to Peertube I would actually get less grief than I do on Youtube. At the very least, I do seem to have “dislike bombing” much less. However I do still have a problem with being followed, rather than just left alone to live my life. That’s not to say people enjoying my content is not desired. But my motivations are less to make money, and more to produce artistic content. One of the biggest reasons I do gravitate to Comicsgate isn’t do to politics reasons, but rather artistic sensibilities.
+
+I deeply resent the fact that it feels like there is very strong pressures to produce content purely for the purpose of making money. If this were my job that would be one thing, but doing things as your hobby ( especially when you’re just learning to produce sequential art ) is completely fine. Same with other means of self-espression to entertain others. The “artistic” life is just not compatible in any with with a philosophy whose sole aesthetic is to be motivated to think like a Businessman or Architect rather than a creative.
+
+I have a lot of issues like these with certain channels, but if I voiced such my comment either gets deleted, or I get blocked. I have no interest in participating in a discussion where my input is genuinely not desired in any way. But then these same people dislike bomb your video, because you said something they disagree with. This is a form of authoritarian persuasion, like it or not. You can be a centrist, and find Youtube authoritarian in practice.

@@ -12,8 +12,8 @@ And yet you still have people that call wikipedia censorship, despite the fact t
 
 But censorship is not getting rid of a resource that doesn’t not serve its purpose or function: to provide historical information that is verifiable by scholars on the topic in question. You have free software being built, for the express purpose of keeping a website online, that only serves to confuse people about the topic, rather than reveal things I might like to know:
 
--- What kind of wooden shoes did 19th century France wear.
--- What are some note able beheadings ( public or private ) in this period.
--- Other bits of information.
+-- What kind of wooden shoes did 19th century France wear.<br />
+-- What are some note able beheadings ( public or private ) in this period.<br />
+-- Other bits of information.<br />
 
 ( It’s also why calling the internet an AGI bugs the shit out of me, but that’s an entirely separate topic. )
